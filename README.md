@@ -1,0 +1,2 @@
+# Kodlar-
+okul kodları için
